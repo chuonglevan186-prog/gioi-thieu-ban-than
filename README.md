@@ -7,10 +7,11 @@
    ## Sở thích
    - Nghe nhạc
    - Xem phim
+   - đọc sách
 
    ## Thông tin liên hệ
-   - Email: email-cua-ban@gmail.com
-   - [Facebook]https://www.facebook.com/chuong.le.960636
+   - Email: chuonglevan186@gmail.com
+   - [Facebook](https://www.facebook.com/chuong.le.960636)
 
    ## Câu trích dẫn yêu thích
    > Hành trình vạn dặm bắt đầu từ một bước chân.
